@@ -1,3 +1,5 @@
+# DEPRECATED
+
 Thank you for downloading this mod
 
 
